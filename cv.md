@@ -1,1 +1,1 @@
-CV
+Miralisher Solikhov
